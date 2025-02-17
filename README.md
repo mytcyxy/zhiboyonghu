@@ -1,4 +1,4 @@
-(https://gitlab.com/mytcyxy/bknanren6/-/edit/main/README.md 男人自己用 新加坡 **1月24** **闪云机场nko号**
+https://gitlab.com/mytcyxy/bknanren6/-/edit/main/README.md 男人自己用 新加坡 **1月24** **闪云机场nko号**
 
 https://gitlab.com/mytcyxy/nanrenyoutubezhibo1/-/edit/main/README.md 男人新加坡youtube直播  **1月26** **闪云机场nko号**
 
